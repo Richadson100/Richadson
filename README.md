@@ -1,1 +1,1 @@
-# Richadson
+# Richadson(extremely detailed CG unity 8k wallpaper, masterpiece, best quality, ultra detailed, (beautiful detailed face, beautiful and detailed eyes), teenager, 2 dragon horns, red hair, bright yellow eyes, (big boobs ), (thin waist), (thick legs), white kimono, in forest, close
